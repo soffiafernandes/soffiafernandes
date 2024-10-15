@@ -1,4 +1,4 @@
-## Seja bem-vindo(a) ao meu perfil 💙
+## Seja bem-vindo(a) 💙
 
 
 **soffiafernandes/soffiafernandes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
